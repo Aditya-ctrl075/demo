@@ -1,2 +1,2 @@
 # demo
-3rd year 6th sem
+3rd year 6th sem..
